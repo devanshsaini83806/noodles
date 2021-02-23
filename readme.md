@@ -1,0 +1,1 @@
+the noodles are long hairy like thin sticks that are cooked with some vegetables
